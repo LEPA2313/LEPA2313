@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LEPA2313
+- 👀 I’m interested in  front-endem
+- 🌱 I’m currently learning  javascriptu
+- 💞️ I’m looking to collaborate on tworzeniu stron internetowych
+- 📫 How to reach me  instagram: @young_lepa
